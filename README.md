@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Tvg1449
+- 👋 Hi, I’m Vipul Krishna
 - 👀 I’m interested in coding/gaming/editing
-- 🌱 I’m currently learning coding
+- 🌱 I’m working as a coder
 - 💞️ I’m looking to collaborate on my discord
 - 📫 contact me on my discord - https://discord.gg/vF6PXtpDJP
 
