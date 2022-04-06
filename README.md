@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Vipul Krishna
 - 👀 I’m interested in coding/gaming/editing
 - 🌱 I’m working as a coder
-- 💞️ I’m looking for freelancing working
+- 💞️ I’m looking for freelance working
 - 📫 contact me on my mail - workwithvk14@gmail.com and on INSTAGRAM - krrishu14
 
 <!---
